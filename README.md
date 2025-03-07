@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 After a career in archaeology, I’m currently working on a career switch to data analysis.
+- ⚡ Fun fact: I am always open for chats about mammoths!
